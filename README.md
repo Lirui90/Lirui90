@@ -2,7 +2,7 @@
 - 👀 I’m interested in Virtual machine
 - 🌱 I’m currently learning C++
 - 💞️ I’m looking to collaborate on No
-- 📫 How to reach me No
+- 📫 How to reach me :Email(Liruilirui90@outlook.com or Liruilirui901@outlook.com)
 - 😄 Pronouns: No
 - ⚡ Fun fact: No
 
